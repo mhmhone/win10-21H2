@@ -1,5 +1,4 @@
-# win10-21H2
-盲盒盲盒one
+# 盲盒盲盒one win10-21H2
 
 windows10 21H2 免费密钥 大客户版密钥 MAK Key 
 
